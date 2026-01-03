@@ -1,0 +1,1 @@
+# -study-society-rules
